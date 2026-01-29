@@ -1,0 +1,1 @@
+# Analoge-Electronics-Temperature-effects-on-Diod-behaviour-
